@@ -15,5 +15,4 @@ Você pode entrar em contato comigo 📬
 ryasmim895@gmail.com
 
 
-![](https://pin.it/5gvKeU4xR)
 
