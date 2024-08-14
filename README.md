@@ -1,5 +1,5 @@
 Olá  ! Boas vindas ao meu perfil 💘
-Meu nome é Yasmim Rodrigues 
+*Meu nome é Yasmim Rodrigues 
 
 • Estou estudando pelo alura 
 • O estudo se baseia na linguagem JavaScript
