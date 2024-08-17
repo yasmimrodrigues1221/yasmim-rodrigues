@@ -1,4 +1,4 @@
-### Olá  ! Boas vindas ao meu perfil 💘 👥
+### Olá  ! Boas vindas ao meu perfil 💕 👥
 
 Meu nome é Yasmim Rodrigues 
 
